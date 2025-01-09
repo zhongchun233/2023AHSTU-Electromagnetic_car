@@ -8,4 +8,5 @@
 
 有疑问可以加qq：1443409291
 
-![Uploading qrcode_1736433733004.jpg…]()
+
+![qrcode_1736433733004](https://github.com/user-attachments/assets/3b7c9de9-1a62-4ee7-9935-226b1974e1e3)
